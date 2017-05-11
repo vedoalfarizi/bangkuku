@@ -1,0 +1,2 @@
+# bangkuku
+sebelum hackathon
