@@ -1,4 +1,6 @@
 # bangkuku
 sebelum hackathon
+aaaaa
+gggggg
 
-ini di ubah oleh vedo, jhjjhj
+namuah lah haaaa
