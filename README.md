@@ -1,4 +1,4 @@
 # bangkuku
 sebelum hackathon
 
-ini dara
+ini dara.,ljk
